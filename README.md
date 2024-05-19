@@ -1,0 +1,1 @@
+# mavericks-splash-page
